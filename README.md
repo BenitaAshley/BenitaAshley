@@ -10,7 +10,7 @@ In the near future, I see myself as the Lead of Business Intelligence and Data A
 
 Enough with the data talk already! 
 
-I love preserving flowers, sea shells, dead remnants of butterflies in resin and turn them into wearable fashion and was featured on Tweak India's 5 Instagram Entrepreneurs article: https://tweakindia.com/work/career/5-instagram-entrepreneurs-on-managing-side-hustle/. Founder of Noémie (where preservation meets art) A women lead startup that focus on preserving memories for a lifetime in the form of Resin Art Jewellery and Home Decor. 
+I love preserving flowers, sea shells, dead remnants of butterflies in resin and turn them into wearable fashion and was featured on Tweak India's 5 Instagram Entrepreneurs article: https://tweakindia.com/work/career/5-instagram-entrepreneurs-on-managing-side-hustle/. Founder of Noémie (where preservation meets art),a women lead startup that focuses on preserving memories for a lifetime in the form of Resin Art Jewellery and Home Decor. 
 I'm also a football fanatic who loves playing football on weekends and watch them games. GGMU!
 
 <!--
